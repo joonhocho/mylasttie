@@ -7,13 +7,13 @@ The cancer diagnosis came too late to give me at least a tenuous hope for a long
 
 Before, there were so many things that occupied my mind. When I learned how much time I had left, however, it became clear which things are really important. So, I am writing to you for a selfish reason. I want to give meaning to my life by sharing with you what I have realized:
 
-Don’t waste your time on work that you don’t enjoy. It is obvious that you cannot succeed in something that you don’t like. Patience, passion, and dedication come easily only when you love what you do.
+* Don’t waste your time on work that you don’t enjoy. It is obvious that you cannot succeed in something that you don’t like. Patience, passion, and dedication come easily only when you love what you do.
 
-It’s stupid to be afraid of others’ opinions. Fear weakens and paralyzes you. If you let it, it can grow worse and worse every day until there is nothing left of you, but a shell of yourself. Listen to your inner voice and go with it. Some people may call you crazy, but some may even think you‘re a legend.
+* It’s stupid to be afraid of others’ opinions. Fear weakens and paralyzes you. If you let it, it can grow worse and worse every day until there is nothing left of you, but a shell of yourself. Listen to your inner voice and go with it. Some people may call you crazy, but some may even think you‘re a legend.
 
-Take control of your life Take full responsibility for the things that happen to you. Limit bad habits and try to lead a healthier life. Find a sport that makes you happy. Most of all, don’t procrastinate. Let your life be shaped by decisions you made, not by the ones you didn’t.
+* Take control of your life Take full responsibility for the things that happen to you. Limit bad habits and try to lead a healthier life. Find a sport that makes you happy. Most of all, don’t procrastinate. **Let your life be shaped by decisions you made, not by the ones you didn’t.**
 
-Appreciate the people around you Your friends and relatives will always be an infinite source of strength and love. That is why you shouldn’t take them for granted.
+* Appreciate the people around you Your friends and relatives will always be an infinite source of strength and love. That is why you shouldn’t take them for granted.
 
 It is difficult for me to fully express my feelings about the importance of these simple realizations, but I hope that you will listen to someone who has experienced how valuable time is.
 
